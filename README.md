@@ -9,9 +9,11 @@ This entire repository is licensed under [Creative Commons Attribution - Share A
 
 For each text there may be up to three files:
 
-- code.englishTitle.en.md: the English text
-- code.frenchTitle.fr.md: the French text
-- code.spoilers.md: notes and **spoilers** about the text
+- `code.englishTitle.en.md`: the English text
+- `code.frenchTitle.fr.md`: the French text
+- `code.spoilers.md`: notes and **spoilers** about the text
+
+The `wip` folder contains the texts currently being written. Completed texts are in the root folder.
 
 # [FR] Magic — histoires par Quentin RIBAC
 Ce dépôt contient des histoires que j’ai écrites, soit en français (ma langue maternelle), soit en anglais, soit les deux.
@@ -24,6 +26,8 @@ Tout le contenu de ce dépôt est sous licence [Attribution - Partage dans les M
 
 Pour chaque texte, il pourra y avoir jusqu’à trois fichiers :
 
-- code.titreFrancais.fr.md : le texte en français
-- code.titreAnglais.en.md : le texte en anglais
-- code.spoilers.md : notes et **spoilers** à propos du texte
+- `code.titreFrancais.fr.md` : le texte en français
+- `code.titreAnglais.en.md` : le texte en anglais
+- `code.spoilers.md` : notes et **spoilers** à propos du texte
+
+Le dossier `wip` contient les textes en cours d’écriture. Les textes achevés sont à la racine.
