@@ -58,3 +58,7 @@ On lui ouvrit, mais il ne vit personne.
 « Monsieur Baudoin ? » dit une petite voix aiguë.
 
 Baudoin baisse alors les yeux et vit devant lui une toute petite femme qui ne devait pas faire plus d'un mètre vingt.
+
+« Ah, excusez-moi, madame, je ne m'attendais pas à une... personne de petite taille, fit Baudoin.
+
+— Eh oui Baudoin, c'est toujours comme ça avec les nains. »
