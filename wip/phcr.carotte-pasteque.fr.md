@@ -44,3 +44,17 @@ C’était la responsable de service.
 — Merci. »
 
 Elle retourna vers l’ascenceur. Il en entendit les portes se refermer. Ses doigts se resserrèrent sur sa vapoteuse. Il poussa la porte, se rendant compte qu’il était déjà en retard. Montant les marches, il perçut le son des conversations auxquelles il allait devoir se mêler. Il prévoyait déjà les employés et les consultants, vêtus « casuel-chic » pour l’occasion.
+
+Pouvait-il se permettre d'ouvrir le deuxième bouton de sa chemise ? Ne serait-ce pas trop casuel et pas assez chic ? Aussi, à qui cherchait-il à plaire ? Le N+3 n'avait pas répondu à l'invitation. D'ailleurs, il y avait une dizaine d'invités du Service des Urgences Prioritaires à Enveloppe Reconductible.
+
+Il allait pousser la porte métallique au sommet de l'escalier, mais la poignée ne bougea pas.
+
+« Rhôô... Ça a été annulé à tout les coups, ils n'ont même pas pris la peine de... »
+
+Mais des voix étouffées lui donnèrent envie de frapper, pour être sûr et certain.
+
+On lui ouvrit, mais il ne vit personne.
+
+« Monsieur Baudoin ? » dit une petite voix aiguë.
+
+Baudoin baisse alors les yeux et vit devant lui une toute petite femme qui ne devait pas faire plus d'un mètre vingt.
