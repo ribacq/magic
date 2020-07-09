@@ -57,8 +57,24 @@ On lui ouvrit, mais il ne vit personne.
 
 « Monsieur Baudoin ? » dit une petite voix aiguë.
 
-Baudoin baisse alors les yeux et vit devant lui une toute petite femme qui ne devait pas faire plus d'un mètre vingt.
+Baudoin baissa alors les yeux et vit devant lui une toute petite femme noire qui ne devait pas faire plus d'un mètre vingt.
 
 « Ah, excusez-moi, madame, je ne m'attendais pas à une... personne de petite taille, fit Baudoin.
 
-— Eh oui Baudoin, c'est toujours comme ça avec les nains. »
+— Eh oui Baudoin, c'est toujours comme ça avec les nains.
+
+— Je... euh... désolé.
+
+— Suis-moi, dit-elle avec un soupir. »
+
+Baudoin fit quelques pas avec une démarche hésitante.
+
+« Dépêche-toi, on n'a que jusqu'à 19h, lui dit-elle.
+
+— B... Bien sûr Madame, l'afterwork. »
+
+Le rooftop — le toit-terrasse, en somme — était pourvu en guise de rembarde de larges bacs à fleurs. Autour d'une table haute étaient accoudées quatre personnes, certainement d'autres salariés gris et mécontents ayant entre trente-cinq et quarante-cinq ans. Ils discutaient de choses banales, de leurs enfants, du workflow, de ce qu'il faisait de plus en plus chaud d'année en année, tout en buvant de mauvais sodas hors de prix dans des bouteilles en verre consignées.
+
+Il fallut à Baudoin un grand signe de la main de la part de sa guide pour qu'il remarque le banc où était assise une vieille dame, trop vieille pour être encore salariée ou pour aller à un afterwork.
+
+Elle devait faire partie du conseil d'administration.
