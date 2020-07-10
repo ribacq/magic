@@ -75,6 +75,22 @@ Baudoin fit quelques pas avec une démarche hésitante.
 
 Le rooftop — le toit-terrasse, en somme — était pourvu en guise de rembarde de larges bacs à fleurs. Autour d'une table haute étaient accoudées quatre personnes, certainement d'autres salariés gris et mécontents ayant entre trente-cinq et quarante-cinq ans. Ils discutaient de choses banales, de leurs enfants, du workflow, de ce qu'il faisait de plus en plus chaud d'année en année, tout en buvant de mauvais sodas hors de prix dans des bouteilles en verre consignées.
 
-Il fallut à Baudoin un grand signe de la main de la part de sa guide pour qu'il remarque le banc où était assise une vieille dame, trop vieille pour être encore salariée ou pour aller à un afterwork.
+Il fallut à Baudoin un grand signe de la main de la part de sa guide pour qu'il remarque le banc où était assise une vieille dame aux lunettes noires chics, trop vieille pour être encore salariée ou pour aller à un afterwork.
 
 Elle devait faire partie du conseil d'administration.
+
+Lorsqu’il ne fut qu’à quelques pas d’elle, elle remua la main en se tournant vaguement dans sa direction. Elle était visiblement aveugle.
+
+« Baudoin ! Comment allez-vous ? Pour ma part je me porte comme un charme, lança-t-elle d’un ton étonamment chaleureux pour une femme avec un sac à main Vuitton.
+
+— Bien merci et vous ? répondit-il automatiquement, avant de se rendre compte de son erreur.
+
+— Mais très bien Baudoin, comme un charme ! répéta-t-elle. »
+
+Il commença à balbutier quelques mots d’excuses, mais elle leva la main et il se tut.
+
+« Baudoin, voyons, ne vous excusez pas, vous valez mieux que ça. Souvenez-vous de votre rang au sein de l’entreprise, vous êtes un collaborateur privilégié. »
+
+Il fronça les sourcils, mais répondit simplement :
+
+« Merci, Madame. »
