@@ -89,8 +89,18 @@ Lorsqu’il ne fut qu’à quelques pas d’elle, elle remua la main en se tourn
 
 Il commença à balbutier quelques mots d’excuses, mais elle leva la main et il se tut.
 
-« Baudoin, voyons, ne vous excusez pas, vous valez mieux que ça. Souvenez-vous de votre rang au sein de l’entreprise, vous êtes un collaborateur privilégié. »
+« Baudoin, voyons, ne vous excusez pas, vous valez mieux que ça. Souvenez-vous de votre rang au sein de l’entreprise, vous êtes un collaborateur précieux à notre organisation. »
 
 Il fronça les sourcils, mais répondit simplement :
 
-« Merci, Madame. »
+« Merci, Madame.
+
+— Et dites-moi, comment envisagez-vous l’évolution de votre carrière à moyen terme ? »
+
+Pris au dépourvu, Baudoin comprit qu’il n’envisageait aucune évolution à sa carrière. Il était là, il se faisait chier, il traitait les données. Foutu workflow.
+
+« Je suis actuellement ouvert aux opportunités, répondit-il d’un ton égal.
+
+— Très bien. Et quelles sont vos prétentions salariales ?... Non haha, je plaisante, ne faites donc pas une pareille mine. Vous aurez ce qu’on vous donnera. »
+
+Les yeux ronds, Baudoin regardait l’aveugle bourgeoise et ne disait rien. Comment pouvait-elle donc savoir quelle mine il faisait ?
