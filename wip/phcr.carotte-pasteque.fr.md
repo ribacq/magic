@@ -45,7 +45,7 @@ C’était la responsable de service.
 
 Elle retourna vers l’ascenceur. Il en entendit les portes se refermer. Ses doigts se resserrèrent sur sa vapoteuse. Il poussa la porte, se rendant compte qu’il était déjà en retard. Montant les marches, il perçut le son des conversations auxquelles il allait devoir se mêler. Il prévoyait déjà les employés et les consultants, vêtus « casuel-chic » pour l’occasion.
 
-Pouvait-il se permettre d'ouvrir le deuxième bouton de sa chemise ? Ne serait-ce pas trop casuel et pas assez chic ? Aussi, à qui cherchait-il à plaire ? Le N+3 n'avait pas répondu à l'invitation. D'ailleurs, il y avait une dizaine d'invités du Service des Urgences Prioritaires à Enveloppe Reconductible.
+Pouvait-il se permettre d'ouvrir le deuxième bouton de sa chemise ? Ne serait-ce pas trop casuel et pas assez chic ? Aussi, à qui cherchait-il à plaire ? Le N+3 n'avait pas répondu à l'invitation. D'ailleurs, il y avait une dizaine d'invités du Secrétariat des Urgences Prioritaires à Enveloppe Reconductible.
 
 Il allait pousser la porte métallique au sommet de l'escalier, mais la poignée ne bougea pas.
 
@@ -117,4 +117,26 @@ Les yeux ronds, Baudoin regardait l’aveugle bourgeoise et ne disait rien. Comm
 
 — Euh, je…
 
-— Chef ! Vous pouvez venir s’il vous plaît ? »
+— Chef ! Ammène-toi là un peu s'te plait ! »
+
+Quatre personnes sursautèrent d’un coup.
+
+« Ah ! fit un homme en gris et mal rasé.
+
+— Ah ! dit une femme en baskets.
+
+— Aaaah ! poussa une petite femme ronde.
+
+— Oh là là… râla un jeune élégant grand et maigre. »
+
+Ils s’avancèrent tous quatre à la file indienne, le jeune maigre en premier, et tous s’amenuisèrent peu à peu. Face à Baudoin ne se trouva au final qu’une vieille dame de petite stature, ridée à souhaît et toute voûtée, les yeux rivés sur le sol.
+
+« Voyons chef, qu’est-ce qu’i’t’prends ? dit la vieille bourgeoise. C’est pour te moquer de moi ? »
+
+Les yeux écarquillés, Baudoin n’y tint plus :
+
+« Vous êtes vraiment aveugle ? Et ils sont où, les autres ? »
+
+Et sa guide lui répondit, un peu sèchement :
+
+« Mais oui elle l’est, et je suis une personne de petie taille. »
