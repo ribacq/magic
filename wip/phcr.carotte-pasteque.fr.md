@@ -104,3 +104,17 @@ Pris au dépourvu, Baudoin comprit qu’il n’envisageait aucune évolution à 
 — Très bien. Et quelles sont vos prétentions salariales ?... Non haha, je plaisante, ne faites donc pas une pareille mine. Vous aurez ce qu’on vous donnera. »
 
 Les yeux ronds, Baudoin regardait l’aveugle bourgeoise et ne disait rien. Comment pouvait-elle donc savoir quelle mine il faisait ?
+
+« Mais vous tombez bien, Baudoin, j’ai justement pour vous une opportunité au sein du SUPER.
+
+— Madame, vous êtes chef du service ?
+
+— Pas le moins du monde, notre chef de service est autour de la table, là-bas.
+
+— Et… qui est-ce ?
+
+— Les personnes autour de la table, lança-t-elle comme une évidence.
+
+— Euh, je…
+
+— Chef ! Vous pouvez venir s’il vous plaît ? »
