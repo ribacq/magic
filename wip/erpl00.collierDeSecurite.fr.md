@@ -3,7 +3,7 @@ Un animal ressemblant à un rongeur fripé poussa un cri aigu dans la forêt. De
 
 Serré autour du cou, le fugitif portait encore le collier de son ancien compagnon de cellule, celui qui aurait dû être libéré aujourd’hui. Erwin Poul. C’était un nom idiot, mais il ne se souvenait toujours pas du sien : la drogue de soumission diffusée par le collier de Poul n’était pas sans effet sur lui. Du « jus à esclave », comme disaient les gens dans le milieu, lorsqu’ils étaient hors des zones connectées à l’astronet.
 
-Il combattit un frisson, raidissant ses membres et serrant ses dents dont l’acier bas de gamme grinçait. Un goutte tombée d’un arbre dans sa nuque le fit même sursauter. Dans un geste abrupt il claqua sa main derrière son cou, sentit son genou faiblir et ce fut comme si le sol s’ouvrait sous lui. Il s’effondra dans les feuilles mortes.
+Il combattit un frisson, raidissant ses membres et serrant ses dents dont l’acier bas de gamme grinçait. Un goutte tombée d’un arbre dans sa nuque le fit sursauter. Dans un geste abrupt il claqua sa main derrière son cou, sentit son genou faiblir et ce fut comme si le sol s’ouvrait sous lui. Il s’effondra dans les feuilles mortes.
 
 Immobile, il entendit de nouveau le nom d’Erwin Poul, appelé par la voix de l’IA pénitentiaire dans son souvenir, et se revit tiré hors de la cellule par le faisceau magnétique lié au collier qui lui serrait la gorge.
 
