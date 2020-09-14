@@ -1,4 +1,4 @@
-# [FR] fuite00 — Collier de sécurité
+# [FR] erpl00 — Collier de sécurité
 Un animal ressemblant à un rongeur fripé poussa un cri aigu dans la forêt. Derrière lui, trois copies plus menues de la bête accoururent. Dans le noir de la nuit, la petite famille alla se terrer dans un creux sous un buisson. Observant cette scène à quelques mètres de là, un homme poussa un râle de dégoût. Encore des êtres qui comptaient les uns sur les autres.
 
 Serré autour du cou, le fugitif portait encore le collier de son ancien compagnon de cellule, celui qui aurait dû être libéré aujourd’hui. Erwin Poul. C’était un nom idiot, mais il ne se souvenait toujours pas du sien : la drogue de soumission diffusée par le collier de Poul n’était pas sans effet sur lui. Du « jus à esclave », comme disaient les gens dans le milieu, lorsqu’ils étaient hors des zones connectées à l’astronet.
