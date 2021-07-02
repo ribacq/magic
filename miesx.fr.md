@@ -1,0 +1,21 @@
+# Mieś
+> [name=Jirsad Cassam][time=25 mars 2021, 80 minutes]
+
+Le ciel descendait et à sa surface les étoiles étaient de plus en plus nombreuses. Son voile se tordait et se distendait finalement comme l’avaient prédit les anciens. Vérifiant une fois de plus dans l’oculâtre, Mieś constatait les mesures. Il avait été mis en garde par Thel : « La famille a besoin de toutes les forces contre l’Iy Wrie, et toute la famille se battra. »
+Sur les sols de terre battue, Thel avait disposé les armes. Harpons et filets étaient alignés, mais l’on savait que l’Iy Wrie les affronterait avec plus de force encore.
+Mieś entra dans la maison et Thel le regarda. Après un regard partagé, une parole à voix basse, il ressortit, sachant que de Thel la silhouette et le visage allaient lui manquer. L’Iy Wrie arriverait bientôt.
+
+Mieś partit d’un côté du village, croisa Sàth à qui il voulut s’expliquer, mais il fut mis au silence par sa main dressée contre lui et ses paupières fermées sur un visage grave. Il parvint donc seul en lisière du bois, qu’il longea jusqu’à entendre les premiers cris en provenance du village. L’Iy Wrie était là. Sans attendre le tournant du chemin, il se mit à enjamber les épines et les basses branches et entra sous les arbres.
+Dans sa main il tenait l’oculâtre, et il portait en pendentif la péreinphe dont il avait appris à jouer en rêve. Derrière lui les branches se resserraient à mesure qu’il s’enfonçait dans la végétation. Mais Mieś ne se retournait pas et continuait vers le rocher et la caverne. Sur son chemin il ramassa une branche dont il se fit appui, et le fruit d’un lucabier dont il pourrait déguster la chair. Il parvint à la caverne et s’y engouffra. À mesure que se faisait l’obscurité, la peau du lucabon se mettait à chanter un air de mélancolie.
+
+Du fond de la caverne Mieś se mit à jouer de la péreinphe dans le noir pour accompagner le lucabon, tandis qu’au dehors, au village, Thel luttait de toutes ses forces contre l’Iy Wrie. La voix de Thel ne sortait presque plus de sa gorge serrée, mais harpons et filets volaient en tous sens, arrachant des éclats de vie à l’ennemi.
+
+Mieś manqua de s’endormir, bercé par le chant du lucabon. Il vérifia par l’oculâtre la direction de la sortie de la caverne, mais il n’était pas encore temps. Il reprit sa péreinphe, seulement des craquements provenant de l’extérieur le firent s’interrompre. La Kè Wrio, qui s’était échappée avait peut-être entendu leur musique et venait à son tour. Au fond de sa caverne, les yeux ouverts dans le noir, Mieś se demanda si Sàth était avec Thel, et qui des deux il pourrait revoir. Il serra ses genoux sous son menton et sentit la péreinphe contre son cœur qui semblait pouvoir percer sa poitrine.  Mais la Kè Wrio parut, d’une blancheur éblouissante, par l’entrée de la caverne, le regarda, et partit. Elle devait rejoindre l’Iy Wrie.
+Mieś resta immobile un long moment, sentant battre son sang dans le bout de ses doigts, respirant irrégulièrement et comme encore aveuglé par la Kè Wrio qui était pourtant partie.
+
+S’appuyant sur son bâton il se remit sur ses pieds et se redressa vivement. L’oculâtre indiquait que le moment était finalement venu. Il ôta son collier et, se servant du côté tranchant de la péreinphe, d’un mouvement vif se fit une coupure au bout du doigt. Mieś déposa une goutte de son sang sur la pierre de la caverne et attendit.
+Peu à peu, le ciel entra. Il s’approcha de lui, l’enlaça, toucha le sang et se rompit. Mieś se baissa, ramassa un morceau du ciel, le serra contre son torse en attendant que le reste ne s’échappe. Il mit son morceau du ciel sous la peau du lucabon, prit son bâton et ressortit de la caverne. Il avait réussi, comme les anciens le lui avaient conté.
+
+Atteignant le chemin à la sortie du bois, il marcha. Lorsqu’il atteignit de nouveau le village, il retrouva Thel, dont le visage était brûlé. Personne n’était parvenu à retrouver Sàth. Mieś offrit à Thel le lucabon qui contenait le morceau du ciel, et Thel pleurait, de douleur, et disait en tendant la main vers lui :
+
+« Mieś, Mieś, pourquoi ne t’ai-je pas suivi ? »
